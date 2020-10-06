@@ -6,7 +6,7 @@
 * Oyster Mushrooms _(300-400 grams)_
 * Red Onions _(2 medium sized)_
 * Garlic Cloves _(5-6)_
-* Ginger _(100-150 grams)_
+* Ginger _(50-100 grams)_
 * Firm Tofu (450 grams)
 * Butter _(200 grams)_
 * Dumpling wrappers _(2-3 packs)_ Or if you brave roll your own wrappers
