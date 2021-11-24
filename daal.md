@@ -26,4 +26,4 @@ Add the chopped tomatoes, cook until they are pretty mush and pretty much disapp
 
 Add water now, up to half of the pot and simmer for 30-40 mins depending how watery you want the daal. (if you have pressure cooker do up to 4 whistles)
 
-Once cooked add the chopped chives or cilantro and give it a nice stir
+Once cooked add the chopped chives or cilantro, salt and give it a nice stir,
